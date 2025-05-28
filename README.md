@@ -1,1 +1,1 @@
-# PARCIAL-2.0
+Samuel Mora - Alejandro Moreno
